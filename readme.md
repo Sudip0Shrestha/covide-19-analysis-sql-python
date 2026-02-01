@@ -150,5 +150,3 @@ Aspiring Data Scientist
 
 🔗 linked-in : https://www.linkedin.com/in/sudip-shrestha-532622372/
 
-🔗 facebook link: https://www.facebook.com/sudeip.shrestha.2025
-
